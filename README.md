@@ -1,1 +1,0 @@
-# thejackaltr.github.io
